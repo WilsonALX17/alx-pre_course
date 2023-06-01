@@ -1,1 +1,1 @@
-My first readme
+Man is bastard
